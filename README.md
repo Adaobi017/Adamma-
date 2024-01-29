@@ -1,0 +1,2 @@
+# Adamma-
+Upcoming web developer 
